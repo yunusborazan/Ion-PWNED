@@ -1,4 +1,4 @@
 # Ion-PWNED
-Sussy Shit.Found Randomnly
+Sussy Meteor Addon.Found Randomnly
 # SUS
 
